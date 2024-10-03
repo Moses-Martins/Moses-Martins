@@ -6,7 +6,7 @@
 
 💞️ I’m looking to collaborate on projects that involve predictive analytics, recommendation systems, and optimizing decision-making processes through data-driven insights.
 
-📫 Check out my Portfolio: https://moses-martins.github.io | You can reach me via Email: mmoses061@gmail.com or LinkedIn: https://www.linkedin.com/in/moses-martins/
+📫 Check out my Portfolio: https://moses-martins.github.io | You can reach me via Email: mmoses061@gmail.com 
 
 😄 Pronouns: He/Him
 
