@@ -1,6 +1,6 @@
 👋 Hi, I’m @Moses Martins!
 
-👀 I’m passionate about leveraging advanced technologies to solve complex problems and drive innovation across diverse industries.
+👀 I’m passionate about leveraging advanced technologies to solve complex problems and driving innovation across diverse industries.
 
 🌱 I’m open to collaborate on any interesting projects.
 
