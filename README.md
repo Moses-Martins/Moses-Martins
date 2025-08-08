@@ -4,6 +4,6 @@
 
 🌱 I’m open to collaborate on any interesting projects.
 
-📫 Check out my Portfolio: https://moses-martins.github.io | You can reach me via Email: mmoses061@gmail.com 
+📫 Check out my Portfolio: https://mosesmartins.com | You can reach me via Email: mmoses061@gmail.com 
 
 ⚡ Fun fact: I’ve always been fascinated by mathematics—it’s like a universal cheat code for understanding the world!
